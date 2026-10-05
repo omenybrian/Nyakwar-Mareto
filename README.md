@@ -1,0 +1,2 @@
+# Nyakwar-Mareto
+Pessimistic man
